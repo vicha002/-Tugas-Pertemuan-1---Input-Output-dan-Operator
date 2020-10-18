@@ -1,1 +1,0 @@
-# VichaDorena_124200031_Tugas1
